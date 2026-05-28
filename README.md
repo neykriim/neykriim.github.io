@@ -1,1 +1,0 @@
-# neykriim.github.io
